@@ -3,7 +3,10 @@
 
 ## `Achieved Milestones ( 2020 - 2021 )`
 
-
+1. Gadarwara Unit-02 Syncronised on 25th Aug 2020. 
+2.
+3.
+4.
 
 
 
